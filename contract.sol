@@ -3,6 +3,12 @@
  *
    https://TickerSEC.com
 
+   Notes:
+   F*ck the Securities & Exchange Commission
+   This is SEC Country, don't tread on me anon
+   Southeastern Conference, y'all
+   SEC! SEC! SEC!
+
    Contract features:
    100,000,000,000 tokens
    3% buy tax in ETH sent to marketing, community & dev
