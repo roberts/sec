@@ -1,2 +1,6 @@
-# sec
-ERC-20 Token for $SEC
+# $SEC
+
+F*ck the Securities & Exchange Commission
+This is SEC Country
+Southeastern Conference, y'all
+SEC! SEC! SEC!
